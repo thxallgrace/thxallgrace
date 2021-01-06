@@ -1,4 +1,10 @@
-### Hi there 👋
+### Hi there, I'm Eunhye Kim! You guys can call me "Diane" also! 👋
+
+- I'm Android developer.
+- Love BEER and Flower ✨✨
+- 💬 If you have a question about me, feel free to contact! 
+- 📫 How to reach me: thxall92@gmail.com 
+- Thanks!!!
 
 <!--
 **thxallgrace/thxallgrace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
