@@ -1,4 +1,4 @@
-### Hi there, I'm Eunhye Kim! You guys can call me "Diane" also! 👋
+### Hi there, I'm Eunhye Kim! You guys can call me "Grace" also! 👋
 
 - I'm Android developer.
 - Love BEER and Flower ✨✨
