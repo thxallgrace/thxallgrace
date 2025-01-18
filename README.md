@@ -1,6 +1,6 @@
 ### Hi there, I'm Eunhye Kim! You guys can call me "Grace" also! 👋
 
-- I'm Android developer.
+- I'm Android developer from south Korea.
 - Love BEER and Flower ✨✨
 - 💬 If you have a question about me, feel free to contact! 
 - 📫 How to reach me: thxall92@gmail.com 
